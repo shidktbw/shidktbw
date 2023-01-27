@@ -1,4 +1,4 @@
-### 0x00 👋
+### 0x00 
 
 > 
-![1624402539_34-phonoteka_org-p-anime-oboi-sokhri-krasivo-40](https://user-images.githubusercontent.com/112849918/215052912-0c7cc2c4-40b1-4dbf-afed-23160e8a0fe9.jpg)
+![1612280628_3-p-anime-v-realnoi-zhizni-art-kartinki-4](https://user-images.githubusercontent.com/112849918/215054137-6e747af8-3b29-42b6-8e1b-6ae031da7641.jpg)
