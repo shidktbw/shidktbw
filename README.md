@@ -1,6 +1,4 @@
 ### 0x00 🐧️
 
-> 
-![1612280628_3-p-anime-v-realnoi-zhizni-art-kartinki-4](https://user-images.githubusercontent.com/112849918/215054137-6e747af8-3b29-42b6-8e1b-6ae031da7641.jpg)
 
-
+![156963-anime-art-oblako-atmosfera-mir-1920x1080](https://user-images.githubusercontent.com/112849918/216761238-dbdd5d73-dca7-457d-8188-f7d603dec043.jpg)
